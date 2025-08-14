@@ -8,6 +8,7 @@
 高级架构师：[https://pan.baidu.com/s/1blSEMijdA7ejOXJ7daxmpg?pwd=m14v](https://pan.baidu.com/s/1blSEMijdA7ejOXJ7daxmpg?pwd=m14v)
 
 2025软考高级系统架构设计师：[https://pan.quark.cn/s/883fbb4dd2e9](https://pan.quark.cn/s/ca4d528fd3e3)
+2024软考高级系统架构设计师：[https://pan.quark.cn/s/e9b020c14fc2](https://pan.quark.cn/s/e9b020c14fc2)
 
 
 ## 网盘资源
